@@ -24,4 +24,4 @@ Lianne Gao (she/her)
 Amal Khatib (she/her)  
 Devang Ghela (he/him)  
 Dayanna Garcia (she/her)  
-
+Aliya Gilley (she/her)
